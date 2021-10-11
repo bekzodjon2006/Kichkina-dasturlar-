@@ -1,2 +1,2 @@
 # Kichkina-dasturlar-
-Mening birinchi dasturlarim
+Mening birinchi dasturlarim ko'rishingiz mumkin :))
